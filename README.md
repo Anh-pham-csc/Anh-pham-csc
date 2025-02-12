@@ -11,7 +11,7 @@
 ### My future goals:
 + This year, I want to achieve all the standards for my course and get a 6.0 in my IELTS.
 + After I leave school, I want to spend a few years learning in-depth about Computer Science, then create and manage a website with my team.
-+ By the time I turn 30, I want to be rich <sup>and rich<sup> 😎
++ By the time I turn 30, I want to be rich <sup>and rich</sup> 😎.
 
 ### Fun fact about me
 - 😲My name, 'Anh', means 'older brother' in Vietnamese. This is one of the most commonly used names in my homeland. Therefore, people often call me by my last and my midle name so that they won't get me confused with others. However, the full name 'Ngoc Anh' is a bit long and takes time to write when texing, so my friends shortened it to 'Na'. 
